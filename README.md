@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Noamika8
+- 👀 I’m interested in constantly learning anything! 
+- 🌱 I’m currently learning Python, mindfullness, positive psycology and Devops in general ! 
+- 💞️ I’m looking to collaborate on anything
+- 📫 I'm availble in my linkdin profile -Noam Mizrahi and by email -Noamika8@gmail.com
